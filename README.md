@@ -1,1 +1,1 @@
-# karena saya bingung jadi bingung juga kan hayo.. kalo ngga tau saya juga ngga tau
+# Remember ;; https://bravo-me.github.io/Portofolio/
